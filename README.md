@@ -1,3 +1,5 @@
+Images Directory:
+
 Destabilization and Decentralization
 of the US Carpet Market
 (A ‘how to’ guide and why)
